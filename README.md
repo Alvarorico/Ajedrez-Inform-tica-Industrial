@@ -1,0 +1,1 @@
+# Ajedrez-Inform-tica-Industrial
